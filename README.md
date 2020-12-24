@@ -1,1 +1,0 @@
-# simplefunnel-guides
